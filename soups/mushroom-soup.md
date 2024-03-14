@@ -47,6 +47,7 @@
    - Stir in the heavy cream or coconut milk and season with salt and pepper to
      taste. Heat the soup until it is just warmed through; do not boil after
      adding the cream.
+     add some pepper in the end.
 
 7. **Serve:**
    - Ladle the soup into bowls and garnish with fresh parsley. Serve with
