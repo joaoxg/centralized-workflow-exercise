@@ -10,10 +10,12 @@
 - 2 tablespoons (30ml) olive oil
 - 1 1/2 teaspoons salt
 
-### For the pizza sauce:
+### For the piza sauce:
 
 - 1 can (14 oz) crushed tomatoes
 - 2 cloves garlic, minced
 - 1 tablespoon (15ml) olive oil
 - 1 teaspoon dried oregano
 - Salt and pepper to taste
+
+### Pasta ingredient
