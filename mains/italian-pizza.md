@@ -16,10 +16,17 @@
 - 2 cloves garlic, minced
 - 1 tablespoon (15ml) olive oil
 - 1 teaspoon dried oregano
-- Salt and pepper to taste
 
+### Any Addition?
+
+- Salt and pepper to taste
+- spicy hot pepper
+- tomato sauce
+- ferment
+=======
 ### Pasta ingredients
 
 - 1/2 pound (225g) pasta
 - 1 tablespoon (15ml) olive oil
 - 1/2 cup (120ml) heavy CrAEM
+
